@@ -5,6 +5,7 @@ Watch 🟢 ➤ ➤ ➤ <a href="https://quinix.cfd/bakiyano"> 🌐 Click Here To
 🔴 ➤►DOWNLOAD👉👉🟢 ➤ <a href="https://quinix.cfd/bakiyano"> 🌐 Click Here To link (Video Fofo Márquez a smujer, castigo de 25 años de prisión.) 
 
  <a href="https://quinix.cfd/bakiyano"> 🌐 Click Here To link (Video Fofo Márquez a smujer, castigo de 25 años de prisión.) 
+ 
 
  El Fofo Márquez despertando todos los días en el penal después de lo que sentenciarán a 22 años por pendejo. #FofoMarquez
  🔴#ÚltimaHora | De #YouTube a la cárcel: un juez sentencia al influencer Rodolfo 'Fofo Márquez' a 17 años de prisión por intento de feminicidio de Edith Márquez tras golpearla y herirla en febrero de 2024 en estacionamiento de un centro comercial de Naucalpan, Edomex.
